@@ -1,2 +1,0 @@
-# albiceleste
-Informacion del clan
